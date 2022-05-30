@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HrubosMark
-- 👀 I’m interested in programs
+- 👀 I’m interested in programs  (OTL Nemzetikincs)
 - 🌱 I’m currently learning HTML/CSS
 - 💞️ I’m looking to collaborate with JR Farkas Botond bozo cunci 👶
 - 📫 You can reach me in everywhere
