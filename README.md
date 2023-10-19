@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @HrubosMark
-- Nem szoktam kijelentkezni a sulis gépekről.
 - 👀 I’m interested in programs  (OTL Nemzetikincs)
 - 🌱 I’m currently learning HTML/CSS
 - 💞️ I’m looking to collaborate with JR Farkas Botond bozo cunci 👶
